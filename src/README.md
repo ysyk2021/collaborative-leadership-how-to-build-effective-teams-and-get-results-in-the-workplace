@@ -1,4 +1,4 @@
-# Introduction
+
 
 Collaborative leadership is a people-focused strategy that emphasizes the importance of working together to achieve common goals. In today's complex and ever-changing business environment, effective collaboration has become an essential component of success.
 

@@ -1,5 +1,3 @@
-Reflecting on Processes and Outcomes
-===================================================================================
 
 Continuous improvement is essential for achieving ongoing success in the workplace. In this chapter, we will explore strategies for encouraging continuous improvement by reflecting on processes and outcomes, including identifying areas for improvement, setting goals and targets, and promoting a culture of learning and development.
 

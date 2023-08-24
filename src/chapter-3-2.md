@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-========================================================================================================
 
 Developing a collaborative leadership mindset is essential for building effective teams in the workplace. In this chapter, we will explore strategies for utilizing positive self-talk and visualization, including developing a growth mindset, reframing negative self-talk, and visualizing success.
 

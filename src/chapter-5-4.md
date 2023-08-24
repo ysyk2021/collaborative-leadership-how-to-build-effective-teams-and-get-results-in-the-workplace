@@ -1,5 +1,3 @@
-Providing Accountability and Measuring Results
-==================================================================================================
 
 Establishing clear objectives and goals is essential for effective team leadership. In this chapter, we will discuss the importance of setting clear objectives and goals and provide strategies for measuring results and providing accountability.
 

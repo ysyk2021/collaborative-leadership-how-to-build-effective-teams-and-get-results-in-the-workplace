@@ -1,5 +1,3 @@
-Benefits of Building Effective Teams and Getting Results
-=================================================================================
 
 Collaborative leadership is essential for building effective teams and achieving results in the workplace. In this chapter, we will discuss the benefits of building effective teams and getting results.
 

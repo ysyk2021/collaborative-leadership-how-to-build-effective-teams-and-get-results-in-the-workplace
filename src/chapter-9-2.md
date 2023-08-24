@@ -1,5 +1,3 @@
-Building Partnerships and Networks
-========================================================================
 
 Building partnerships and networks is a critical aspect of collaborative leadership. In this chapter, we will discuss strategies for building partnerships and networks across departments and functional areas.
 

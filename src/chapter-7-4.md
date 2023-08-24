@@ -1,5 +1,3 @@
-Maintaining Productive Relationships
-=================================================================================
 
 Maintaining productive relationships is essential for managing conflict and resistance in the workplace. In this chapter, we will explore strategies for maintaining productive relationships, including building trust, promoting open communication, and practicing empathy and compassion.
 

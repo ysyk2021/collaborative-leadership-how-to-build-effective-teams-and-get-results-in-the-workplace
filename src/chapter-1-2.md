@@ -1,5 +1,3 @@
-Common Misconceptions About Collaboration
-==================================================================
 
 Collaboration is often seen as the key to building effective teams and achieving success in the workplace. However, there are also many misconceptions about collaboration that can hinder its effectiveness. In this chapter, we will discuss some common misconceptions about collaboration.
 

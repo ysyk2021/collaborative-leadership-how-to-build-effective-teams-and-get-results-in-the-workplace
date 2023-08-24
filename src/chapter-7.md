@@ -1,5 +1,3 @@
-Chapter 7: Managing Conflict and Resistance
-===========================================
 
 Managing conflict and resistance is essential for building effective teams and achieving results in the workplace. In this chapter, we will explore strategies for understanding the nature of conflict and resistance and developing effective approaches for managing them.
 

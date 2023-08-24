@@ -1,5 +1,3 @@
-Understanding the Nature of Conflict and Resistance
-================================================================================================
 
 Managing conflict and resistance is a crucial aspect of building effective teams in the workplace. In this chapter, we will explore strategies for managing conflict and resistance, including understanding the nature of conflict and resistance, promoting open communication, and practicing empathy and compassion.
 

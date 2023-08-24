@@ -1,5 +1,3 @@
-Understanding the Science Behind Collaboration
-============================================================================================
 
 Collaboration is an essential part of effective team leadership, but what does it really mean? In this chapter, we will explore the science behind collaboration and define collaborative leadership.
 

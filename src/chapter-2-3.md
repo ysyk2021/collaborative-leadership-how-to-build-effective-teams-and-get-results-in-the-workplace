@@ -1,5 +1,3 @@
-Assessing Your Personal Approach to Leading Collaboratively
-=========================================================================================================
 
 Assessing your personal approach to leading collaboratively is an important step towards developing effective collaborative leadership skills. In this chapter, we will provide strategies for assessing your personal approach to leading collaboratively.
 

@@ -1,5 +1,3 @@
-Chapter 3: Developing a Collaborative Leadership Mindset
-========================================================
 
 Developing a collaborative leadership mindset is essential for building effective teams and achieving success in the workplace. In this chapter, we will explore techniques for cultivating a collaborative leadership mindset, including utilizing positive self-talk and visualization, setting realistic goals and objectives, and developing empathy and compassion through collaborative leadership.
 

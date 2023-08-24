@@ -1,5 +1,3 @@
-Chapter 8: Encouraging Continuous Improvement
-=============================================
 
 Encouraging continuous improvement is essential for promoting effective team-building and achieving success in the workplace. In this chapter, we will discuss strategies for encouraging continuous improvement through reflecting on processes and outcomes, encouraging continuous learning and development, utilizing feedback and recognition, and adapting to changes in the workplace.
 

@@ -1,5 +1,3 @@
-Developing Empathy and Compassion Through Collaborative Leadership
-============================================================================================================================
 
 Developing empathy and compassion is essential for effective collaborative leadership. In this chapter, we will explore how to develop a collaborative leadership mindset that prioritizes empathy and compassion, including strategies for active listening, building trust, and promoting a positive work environment.
 

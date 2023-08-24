@@ -1,5 +1,3 @@
-Making Decisions with Consensus
-==========================================================================================
 
 Facilitating collaboration and decision making is essential for building effective teams in the workplace. In this chapter, we will explore strategies for facilitating collaboration and decision making, including making decisions with consensus, promoting active listening, and establishing clear decision-making processes.
 

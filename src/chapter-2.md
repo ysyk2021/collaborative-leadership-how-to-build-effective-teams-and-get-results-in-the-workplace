@@ -1,5 +1,3 @@
-Chapter 2: Defining Collaborative Leadership
-============================================
 
 Collaborative leadership is a leadership approach that prioritizes communication, teamwork, and shared decision-making. In this chapter, we will provide an overview of collaborative leadership, discuss the science behind collaboration, and provide tools for assessing your personal approach to leading collaboratively.
 

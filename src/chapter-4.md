@@ -1,5 +1,3 @@
-Chapter 4: Building Effective Teams
-===================================
 
 Building effective teams is a critical aspect of collaborative leadership. In this chapter, we will discuss strategies for building effective teams through understanding the elements of effective team building, identifying team roles and responsibilities, developing communication strategies, and encouraging trust and collaboration.
 

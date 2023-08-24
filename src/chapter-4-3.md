@@ -1,5 +1,3 @@
-Developing Communication Strategies
-========================================================================
 
 Effective communication is essential for building effective teams in the workplace. In this chapter, we will explore strategies for developing effective communication within teams, including promoting active listening, establishing clear communication channels, and using technology to facilitate collaboration.
 

@@ -1,5 +1,3 @@
-Techniques for Cultivating a Collaborative Leadership Mindset
-=======================================================================================================================
 
 Developing a collaborative leadership mindset is essential for effective team leadership. In this chapter, we will discuss techniques for cultivating a collaborative leadership mindset.
 

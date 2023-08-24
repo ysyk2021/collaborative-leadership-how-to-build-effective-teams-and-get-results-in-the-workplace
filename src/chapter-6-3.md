@@ -1,5 +1,3 @@
-Fostering Creativity and Innovation
-==============================================================================================
 
 Facilitating collaboration and decision making is essential for building effective teams in the workplace. In this chapter, we will explore strategies for fostering creativity and innovation, including promoting diverse perspectives, encouraging experimentation, and providing opportunities for learning and growth.
 

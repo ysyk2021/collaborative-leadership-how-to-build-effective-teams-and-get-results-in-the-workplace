@@ -1,5 +1,3 @@
-Developing SMART Objectives and Goals
-=========================================================================================
 
 Establishing clear objectives and goals is essential for building effective teams in the workplace. In this chapter, we will explore strategies for developing SMART objectives and goals, including setting specific, measurable, achievable, relevant, and time-bound goals.
 

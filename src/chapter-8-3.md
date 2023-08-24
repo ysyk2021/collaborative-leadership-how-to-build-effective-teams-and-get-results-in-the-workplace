@@ -1,5 +1,3 @@
-Utilizing Feedback and Recognition
-=================================================================================
 
 Utilizing feedback and recognition is an important aspect of encouraging continuous improvement within teams. In this chapter, we will discuss strategies for utilizing feedback and recognition to promote ongoing growth and development.
 

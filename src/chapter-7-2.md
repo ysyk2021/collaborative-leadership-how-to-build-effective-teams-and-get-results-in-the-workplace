@@ -1,5 +1,3 @@
-Chapter 7: Managing Conflict and Resistance: Developing Strategies for Managing Conflict
-========================================================================================
 
 Conflict is a natural part of working in teams, but it can also be a significant source of tension and stress. In this chapter, we will explore strategies for managing conflict and resistance in the workplace, including recognizing common sources of conflict, promoting open communication, and developing effective conflict resolution skills.
 

@@ -1,5 +1,3 @@
-Understanding the Importance of Collaborative Leadership in the Workplace
-==================================================================================================
 
 Collaborative leadership is essential for building effective teams and achieving success in the workplace. In this chapter, we will discuss the importance of collaborative leadership in the workplace.
 

@@ -1,5 +1,3 @@
-Setting Realistic Goals and Objectives
-================================================================================================
 
 Developing a collaborative leadership mindset is essential for building effective teams in the workplace. In this chapter, we will explore strategies for setting realistic goals and objectives, including identifying key priorities, breaking down larger goals into smaller sub-goals, and establishing accountability and metrics for success.
 

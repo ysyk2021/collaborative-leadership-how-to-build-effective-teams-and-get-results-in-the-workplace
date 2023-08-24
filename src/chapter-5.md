@@ -1,5 +1,3 @@
-Chapter 5: Establishing Clear Objectives and Goals
-==================================================
 
 Establishing clear objectives and goals is essential for promoting effective team-building and achieving success in the workplace. In this chapter, we will discuss strategies for establishing clear objectives and goals through developing SMART objectives and goals, aligning objectives and goals with organizational strategy, ensuring clarity and understanding amongst team members, and providing accountability and measuring results.
 

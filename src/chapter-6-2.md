@@ -1,5 +1,3 @@
-Encouraging Participation and Engagement
-===================================================================================================
 
 Facilitating collaboration and decision making is essential for building effective teams in the workplace. In this chapter, we will explore strategies for encouraging participation and engagement amongst team members, including promoting active listening, creating a culture of trust, providing opportunities for personal and professional growth, and using technology to facilitate collaboration.
 

@@ -1,5 +1,3 @@
-Overview of Collaborative Leadership
-==================================================================================
 
 Collaborative leadership is a style of leadership that emphasizes collaboration, cooperation, and coordination among team members. In this chapter, we will provide an overview of collaborative leadership.
 

@@ -1,5 +1,3 @@
-Developing Effective Facilitation Skills
-===================================================================================================
 
 Effective facilitation skills are essential for fostering collaborative work environments and making effective decisions within teams. In this chapter, we will discuss techniques for developing effective facilitation skills.
 

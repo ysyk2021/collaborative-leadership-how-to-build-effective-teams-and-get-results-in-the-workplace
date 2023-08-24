@@ -1,5 +1,3 @@
-Chapter 6: Facilitating Collaboration and Decision Making
-=========================================================
 
 Facilitating collaboration and decision making is a critical aspect of effective team-building. In this chapter, we will discuss strategies for facilitating collaboration and decision-making through developing effective facilitation skills, encouraging participation and engagement, fostering creativity and innovation, and making decisions with consensus.
 

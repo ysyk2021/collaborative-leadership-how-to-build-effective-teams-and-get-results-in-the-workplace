@@ -1,5 +1,3 @@
-Chapter 9: Leading Across Boundaries
-====================================
 
 Leading across boundaries is essential for building effective teams and achieving success in the workplace. In this chapter, we will discuss strategies for leading collaboratively across departments and functional areas, building partnerships and networks, managing complex projects and initiatives, and fostering a culture of collaboration.
 

@@ -1,5 +1,3 @@
-Handling Resistance with Tact and Diplomacy
-========================================================================================
 
 Handling resistance with tact and diplomacy is an essential component of managing conflict and achieving success in the workplace. In this chapter, we will explore strategies for handling resistance effectively, including understanding different types of resistance, addressing resistance proactively, and promoting open communication.
 

@@ -1,4 +1,3 @@
-# Leading Collaboratively Across Departments and Functional Areas
 
 In today's globalized world, it is rare to find a workplace where different departments and functional areas do not have to work together. Collaboration across boundaries can take many different forms, including cross-functional teams, virtual teams, partnerships with external organizations, and more.
 

@@ -1,5 +1,3 @@
-Aligning Objectives and Goals with Organizational Strategy
-==============================================================================================================
 
 Establishing clear objectives and goals is essential for building effective teams in the workplace. In this chapter, we will explore strategies for establishing clear objectives and goals, including aligning objectives and goals with organizational strategy, setting SMART goals, and providing regular feedback and coaching.
 

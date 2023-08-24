@@ -1,5 +1,3 @@
-Encouraging Trust and Collaboration
-========================================================================
 
 Building effective teams is essential for achieving success in the workplace. In this chapter, we will explore strategies for encouraging trust and collaboration amongst team members, including fostering open communication, promoting diversity and inclusion, encouraging creativity, and celebrating successes.
 

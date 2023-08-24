@@ -1,5 +1,3 @@
-Managing Complex Projects and Initiatives
-===============================================================================
 
 Managing complex projects and initiatives is a critical aspect of collaborative leadership. In this chapter, we will discuss strategies for managing complex projects and initiatives across departments and functional areas.
 
