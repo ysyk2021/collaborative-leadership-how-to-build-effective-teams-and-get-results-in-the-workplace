@@ -7,3 +7,7 @@ Throughout the book, we will draw on real-world examples of successful collabora
 This book is intended for anyone who manages or works within a team environment and wants to improve their leadership skills. Whether you are a new manager or a seasoned executive, this book will provide you with the knowledge and tools you need to build effective teams and achieve success in the workplace.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
