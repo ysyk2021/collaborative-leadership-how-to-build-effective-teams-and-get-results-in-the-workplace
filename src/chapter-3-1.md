@@ -1,5 +1,4 @@
-Chapter 3: Techniques for Cultivating a Collaborative Leadership Mindset
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the essential techniques for cultivating a collaborative leadership mindset. Developing the right mindset is a foundational step towards building effective teams and achieving outstanding results in the workplace.
 

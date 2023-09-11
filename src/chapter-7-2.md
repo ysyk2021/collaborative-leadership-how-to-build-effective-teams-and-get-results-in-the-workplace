@@ -1,5 +1,4 @@
-Chapter 8: Developing Strategies for Managing Conflict
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the crucial skill of conflict management within the realm of collaborative leadership. Effectively managing conflicts is essential for building and sustaining effective teams and achieving outstanding results in the workplace.
 

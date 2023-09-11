@@ -1,5 +1,4 @@
-Chapter 11: Utilizing Positive Self-Talk and Visualization
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the powerful techniques of positive self-talk and visualization within the context of collaborative leadership. Harnessing the potential of these practices can help leaders and team members build effective teams and achieve outstanding results in the workplace.
 

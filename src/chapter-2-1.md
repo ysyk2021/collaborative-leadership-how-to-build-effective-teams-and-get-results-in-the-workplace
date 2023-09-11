@@ -1,5 +1,4 @@
-Chapter 1: Overview of Collaborative Leadership
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this opening chapter, we embark on a journey to explore the fundamental concepts and principles of collaborative leadership. Collaborative leadership is not just a leadership style but a philosophy that empowers leaders to build effective teams and achieve outstanding results in the workplace through shared vision, trust, and active cooperation.
 

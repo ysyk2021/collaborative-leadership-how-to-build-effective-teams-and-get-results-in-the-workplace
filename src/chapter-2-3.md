@@ -1,5 +1,4 @@
-Chapter 4: Assessing Your Personal Approach to Leading Collaboratively
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the crucial process of self-assessment for collaborative leadership. Understanding your personal leadership style and its alignment with collaborative principles is essential for building effective teams and achieving results in the workplace.
 

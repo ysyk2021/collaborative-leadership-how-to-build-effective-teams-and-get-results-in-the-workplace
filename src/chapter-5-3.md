@@ -1,5 +1,4 @@
-Chapter 5: Ensuring Clarity and Understanding Amongst Team Members
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the critical role of clarity and understanding in collaborative leadership. Clear communication and a shared understanding are essential for building effective teams and achieving outstanding results in the workplace.
 

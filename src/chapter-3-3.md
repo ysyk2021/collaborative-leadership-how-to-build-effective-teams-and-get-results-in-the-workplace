@@ -1,5 +1,4 @@
-Chapter 5: Setting Realistic Goals and Objectives
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the crucial aspect of goal setting within the context of collaborative leadership. Setting realistic and achievable goals and objectives is essential for building effective teams and driving tangible results in the workplace.
 

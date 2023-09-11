@@ -1,5 +1,4 @@
-Chapter 10: Developing Communication Strategies
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective communication lies at the heart of collaborative leadership. In this chapter, we will explore the key principles and strategies for developing robust communication strategies that enable you to connect with your team, share information effectively, and drive results in the workplace.
 

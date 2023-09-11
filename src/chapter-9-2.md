@@ -1,5 +1,4 @@
-Chapter 5: Building Partnerships and Networks
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the art of building partnerships and networks within the context of collaborative leadership. Establishing meaningful connections with individuals, organizations, and stakeholders is a vital component of building effective teams and achieving outstanding results in the workplace.
 

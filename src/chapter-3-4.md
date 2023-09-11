@@ -1,5 +1,4 @@
-Chapter 6: Developing Empathy and Compassion through Collaborative Leadership
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the profound impact of empathy and compassion on collaborative leadership. We delve into how these qualities can be nurtured and harnessed to build effective teams and achieve exceptional results in the workplace.
 

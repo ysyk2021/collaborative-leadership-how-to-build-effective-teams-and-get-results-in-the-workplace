@@ -1,5 +1,4 @@
-Chapter 10: Adapting to Changes in the Workplace
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the crucial skill of adapting to changes in the workplace within the context of collaborative leadership. The ability to navigate and embrace change is essential for building effective teams and achieving outstanding results in dynamic and evolving work environments.
 

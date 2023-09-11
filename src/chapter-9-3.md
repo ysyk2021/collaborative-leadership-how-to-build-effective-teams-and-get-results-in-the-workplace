@@ -1,5 +1,4 @@
-Chapter 8: Managing Complex Projects and Initiatives
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the art of managing complex projects and initiatives within the framework of collaborative leadership. Effectively overseeing intricate endeavors is essential for building effective teams and achieving outstanding results in the workplace.
 

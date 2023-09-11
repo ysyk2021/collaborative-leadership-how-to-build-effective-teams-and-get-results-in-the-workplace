@@ -1,5 +1,4 @@
-Chapter 8: Encouraging Trust and Collaboration
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the essential components of fostering trust and collaboration within your team. Trust is the cornerstone of effective collaboration, and understanding how to cultivate it is paramount to achieving remarkable results in the workplace.
 

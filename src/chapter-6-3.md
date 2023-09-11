@@ -1,5 +1,4 @@
-Chapter 6: Fostering Creativity and Innovation
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the realm of collaborative leadership, fostering creativity and innovation within your teams is not just a desirable trait; it's an imperative for staying competitive and achieving exceptional results in the workplace. This chapter explores the strategies and principles for nurturing a culture of creativity and innovation that can propel your team to new heights.
 

@@ -1,5 +1,4 @@
-Chapter 7: Handling Resistance with Tact and Diplomacy
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the delicate but essential art of handling resistance within the context of collaborative leadership. Effectively managing resistance with tact and diplomacy is key to building and sustaining effective teams and achieving outstanding results in the workplace.
 

@@ -1,5 +1,4 @@
-Chapter 9: Providing Accountability and Measuring Results
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the critical aspects of accountability and result measurement within the realm of collaborative leadership. Effective accountability and measurement practices are key to building and sustaining effective teams and achieving outstanding results in the workplace.
 

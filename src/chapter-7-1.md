@@ -1,5 +1,4 @@
-Chapter 7: Understanding the Nature of Conflict and Resistance
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the complexities of conflict and resistance within the context of collaborative leadership. To build effective teams and achieve exceptional results in the workplace, it is crucial to comprehend the nature of these challenges and develop strategies to address them constructively.
 

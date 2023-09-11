@@ -1,5 +1,4 @@
-Chapter 12: Making Decisions with Consensus
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Collaborative leadership thrives on the ability to make informed and inclusive decisions. In this chapter, we delve into the concept of consensus decision-making, a powerful approach that not only involves all team members but also fosters a sense of ownership and commitment. Discover how to navigate the intricacies of consensus-based decision-making to build effective teams and achieve remarkable results in the workplace.
 

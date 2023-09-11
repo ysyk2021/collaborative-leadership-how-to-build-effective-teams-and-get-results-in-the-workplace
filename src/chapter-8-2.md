@@ -1,5 +1,4 @@
-Chapter 7: Encouraging Continuous Learning and Development
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the vital role of encouraging continuous learning and development within the framework of collaborative leadership. Fostering a culture of lifelong learning is essential for building effective teams and achieving outstanding results in the workplace.
 

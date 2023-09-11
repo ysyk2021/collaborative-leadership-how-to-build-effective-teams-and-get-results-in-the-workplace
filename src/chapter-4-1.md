@@ -1,5 +1,4 @@
-Chapter 4: Understanding the Elements of Effective Team Building
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the world of collaborative leadership, the ability to build and lead effective teams is paramount. Teams are the engines that drive innovation, problem-solving, and ultimately, results in the workplace. To succeed in this endeavor, it's crucial to understand the key elements of effective team building. In this chapter, we will delve into the fundamental principles and practices that underpin successful team formation and development.
 

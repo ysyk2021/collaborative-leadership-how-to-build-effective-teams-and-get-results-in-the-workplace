@@ -1,5 +1,4 @@
-Chapter 4: Aligning Objectives and Goals with Organizational Strategy
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the critical process of aligning team objectives and goals with the overarching organizational strategy. Effective alignment is the key to building successful teams and achieving exceptional results in the workplace.
 

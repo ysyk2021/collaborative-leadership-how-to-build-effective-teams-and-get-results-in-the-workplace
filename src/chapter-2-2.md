@@ -1,5 +1,4 @@
-Chapter 6: Understanding the Science Behind Collaboration
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we dive into the fascinating world of the science behind collaboration. Understanding the cognitive, psychological, and neurological aspects of collaboration can help leaders build effective teams and achieve remarkable results in the workplace.
 

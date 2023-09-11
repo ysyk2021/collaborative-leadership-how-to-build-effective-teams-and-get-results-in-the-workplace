@@ -1,5 +1,4 @@
-Chapter 7: Maintaining Productive Relationships
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the critical component of maintaining productive relationships within the context of collaborative leadership. Nurturing and sustaining positive relationships are fundamental to building effective teams and achieving outstanding results in the workplace.
 
